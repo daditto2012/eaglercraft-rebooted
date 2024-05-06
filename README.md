@@ -5,7 +5,7 @@ https://daditto2012.github.io/eaglercraft-rebooted/1.3
 https://daditto2012.github.io/eaglercraft-rebooted/1.5
 https://daditto2012.github.io/eaglercraft-rebooted/1.8
 
-
+https://raw.githubusercontent.com/daditto2012/eaglercraft-rebooted/main/download%20(2).jfif
 
 
 
